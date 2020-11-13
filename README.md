@@ -1,0 +1,1 @@
+# guchio-nobuo.github.io
